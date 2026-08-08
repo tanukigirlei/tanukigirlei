@@ -7,4 +7,4 @@
 - 💬 Ask me about nothing
 - 📫 How to reach me: don't
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ur gey
+- ⚡ Fun fact: The picrew files have nothing to do with the sheet, I just use this branch to host images for my own personal BleachD20 Classless Characters. I play Quincies exclusively
